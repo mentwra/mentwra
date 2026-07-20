@@ -19,3 +19,5 @@
 <img width="223" height="324" alt="image" src="https://github.com/user-attachments/assets/927a4989-cf7d-42ca-be1e-6c322494c3d5" />
 
 <kbd> THE BEST BSF EVER IS [JENYA](https://github.com/kurokiryuirl) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2c2d13e-680e-4be2-84a1-3f0e70649140" /></kbd> 
+
+im also looking for friends👀❤️
