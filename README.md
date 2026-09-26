@@ -14,7 +14,7 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="281" height="280" alt="usahanabyartwork" src="https://github.com/user-attachments/assets/5f1ff75a-c79f-4a60-be6c-e7c801bf76ea" /> 
   
-<table><tr><td>ㅤENFP sx7so9sp4 7w8 <img width="20" height="20" alt="M9gx6ah" src="https://github.com/user-attachments/assets/82787e17-2e20-4e02-a1f9-5dd4aa5b2feb" />
+<table><tr><td>ㅤENTP sx7so9sp4 7w8 <img width="20" height="20" alt="M9gx6ah" src="https://github.com/user-attachments/assets/82787e17-2e20-4e02-a1f9-5dd4aa5b2feb" />
 
 
 <div align="center"><img width="60" height="74" alt="girdance" src="https://github.com/user-attachments/assets/af76f49d-8fa4-4fd6-9f35-da49a0dd3cfb" />
