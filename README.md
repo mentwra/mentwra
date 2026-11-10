@@ -4,7 +4,7 @@
 ≽ ^⎚ ˕ ⎚^ ≼
 
   
-ㅤ<table><tr><td>ENTP sx7so9sp4 7w8 <img width="25" height="25" alt="omori-omori-kel" src="https://github.com/user-attachments/assets/a78634db-1988-4cf5-ab39-a4c9a804ae83" /></td></tr></table></div> 
+ㅤ<table><tr><td>ENxP sx7so9sp4 7w8 <img width="25" height="25" alt="omori-omori-kel" src="https://github.com/user-attachments/assets/a78634db-1988-4cf5-ab39-a4c9a804ae83" /></td></tr></table></div> 
 
 
 <img width="160" height="180" alt="teddie-persona-4" src="https://github.com/user-attachments/assets/bf4e0f73-2276-40b1-841e-5a719ef04539" />
